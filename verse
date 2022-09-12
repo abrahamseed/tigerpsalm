@@ -4,16 +4,22 @@ rapping shcemes
 2•Just wagging wars and making bets.
 3•Anxiety in thi twisted up society no regrets
 4•Angry lil prick building white picket fences.
-5•Racist neighbors looking and listening through the hedges.
-6•Armageddon at hand warring everybody busting nuts on bitches making messes.
-7•My dick in woman as it stinking inside there pussy as they naked edging less
-8•Imagination got me thinking dangerous tryna except the mess.
-
+5•Racist neighbors looking listening cutting hedges
+6•Armageddon at hand warring everybody busting in women 
+7•nuts on bitches pulling wedgies murdering braindead bitches 
+8•making messes count my blessing as I rap rhyme tryna sing infringes
+7•My dick in woman as it stinking inside there pussy dumb dead bread crumbed
+8•Imagination got me thinking dangerous tryna except the PMS good for nothing 
+9• hookers that font type front phoenicia felatio dick breath snitches
 Chorus//
-
-
-
-\\
+YOU IN LOVE WITH THE HOE AND YOU KISS THE HOE YOU IN LOVE WITH A HOOKER BRO
+JULIA ROBERTS LIAL LOVE ITS AQUISTIC LOVE HARLEQUIN JARED LITO GANGSTER ROMANTIC
+ WILLIAM SHAKESPEAR BIOGRAPHIES OF DOMESTICATED FOREIGN AFFAIRS OVER DRAMATIC BROKEN HEARTED 
+CHEATING IN LOVE WITH SATAN 3 DAYS IN HELL PAID THE PRICE FOR LOVE BETRAYED MURDERING HEARTLESS BITCH!
+I PAID FOR EVERYTHING WITH MY LIFE I DIED FOR LOVING A 2 FACED EVIL NARCASSIST! PLAYED WITH MY HEART I WAS HER  MARK 
+THEY PLANNED MY MURDER TWICE AND I FORGAVE YOU BITCH THEN YOU DID IT AGAIN YOU WANTED ME DEAD MY LOVE MENT NOTHING YOU HEATHEN PIG 
+SWINE DEL LA CREME CUM DUMP WITCH! 
+\\ 
 
 1•Make it first like best wicked bithes cum on there faces cause they blessed.
 2•Guess I'll just flex take off my vest cause I'm like 50 cent rich n fresh .
